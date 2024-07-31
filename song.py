@@ -8,6 +8,6 @@ sdsds
 asdadad
 adadadaddxcxccx
 cvcvvvvvvvvvvvvvvv
-
-vbvbvbv
-dfdffd
+Гылым таппай мактан ба
+вававававав
+Орын таппай баптан ба
