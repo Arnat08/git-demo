@@ -1,8 +1,5 @@
-
-Гылым таппай мактан ба
-вававававав
-Орын таппай баптан ба
-Кумарланып шаттан ба
-Ойнап боска кулуге
-5 нарседен кашык бол
-5 нарсеге асык бол
+This that pink venom,
+This that pink venom
+This that pink venom
+Arnat Ashimbayev
+Akmaz Ashimbayev
